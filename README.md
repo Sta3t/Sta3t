@@ -1,7 +1,8 @@
 - 👋 你好，我是 @sta3t  
 - 📝 **性格**: 中二患者，不善言辞  
 - 📃 **博客**: [http://blog.ming9.top](http://blog.ming9.top)  
-- 🎨 **爱好**:  🎵 纯音乐  /📖 小说  
+- 🎨 **爱好**:  🎵 纯音乐  /📖 小说
+- &#x1F3AE; **LOL**:  &#x1F194;剑來c，无畏先锋上单选手，10年征战，依然很菜
 - 🔗**GitHub**: [https://github.com/Sta3t](https://github.com/Sta3t)  (XiaoMMing9这个账号丢失了)
 - 🔗**BiliBili**: [https://space.bilibili.com/1544982906](https://space.bilibili.com/1544982906)
 - 🔗**先知社区**: [https://xz.aliyun.com/u/70493](https://xz.aliyun.com/u/70493)
